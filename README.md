@@ -1,1 +1,14 @@
-www.chapaiming.net
+https://www.sgssstg.cn
+https://www.wisonat.com
+https://www.lanshantown.com
+https://www.czyhjy.cn
+https://www.hbfengshuo.cn
+https://www.qkh85.cn
+https://www.qjc65.cn
+https://www.699sj.cn
+https://www.676nf.cn
+https://www.niwobang.cn
+https://www.whyuchen.cn
+https://www.uhdez.cn
+https://www.chapaiming.net
+https://www.50jjx.cn
